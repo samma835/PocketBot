@@ -12,6 +12,12 @@ Easy to export your pocket contents by tags with format.
 
 # Log
 
+[26] 06/21/2015 - 06/27/2015 (整理)
+https://www.evernote.com/l/ADY5S20Sev5CTpNPbc9DYqFZzNhjr5v0waI
+
+[25] 06/14/2015 - 06/20/2015 (整理)
+https://www.evernote.com/l/ADbp8JAqRIRCf5zy6bPhBGe0y2FkkRtPOvg
+
 [24] 06/07/2015 - 06/13/2015 (整理)
 https://www.evernote.com/l/ADaFO4Ic43ZHHJE1xrB4ea-KoOYgnhyH_Vg
 
